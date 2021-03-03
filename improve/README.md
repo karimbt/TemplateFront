@@ -1,1 +1,1 @@
-In Tutocamp, we believe that education is a global right. Therefore our mission is to help people get access to knowledge. We accomplish this by creating thousands of videos, articles, and interactive lessons - all available with limited costs to the public.
+In ImPROve we believe that education is a global right. Therefore our mission is to help people get access to knowledge. We accomplish this by creating thousands of videos, articles, and interactive lessons - all available with limited costs to the public.
